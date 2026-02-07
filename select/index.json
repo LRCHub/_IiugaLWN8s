@@ -1,0 +1,40 @@
+{
+  "version": 1,
+  "base_track": "FDO",
+  "base_artist": "Pooh Shiesty",
+  "createdAt": "2026-02-07T08:28:25.898620Z",
+  "candidates": [
+    {
+      "id": "lrclib_1",
+      "source": "lrclib",
+      "title": "FDO",
+      "artist": "Xanman",
+      "has_synced": true,
+      "path": "select/01_FDO_Xanman.lrc"
+    },
+    {
+      "id": "lrclib_2",
+      "source": "lrclib",
+      "title": "FDO (Paused)",
+      "artist": "Pooh Shiesty",
+      "has_synced": true,
+      "path": "select/02_FDO_(Paused)_Pooh_Shiesty.lrc"
+    },
+    {
+      "id": "lrclib_3",
+      "source": "lrclib",
+      "title": "FDO",
+      "artist": "Pooh Shiesty",
+      "has_synced": true,
+      "path": "select/03_FDO_Pooh_Shiesty.lrc"
+    },
+    {
+      "id": "petitlyrics_1",
+      "source": "petitlyrics",
+      "title": "FDO",
+      "artist": "Pooh Shiesty",
+      "has_synced": false,
+      "path": "select/pl_01_FDO_Pooh_Shiesty.txt"
+    }
+  ]
+}
