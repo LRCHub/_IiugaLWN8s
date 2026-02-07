@@ -1,0 +1,124 @@
+# Pooh Shiesty – FDO
+
+> **歌詞登録ステータス：同期歌詞あり**
+
+```lrc
+[00:10.37] (Once again, I'm locked in with TP, we finna make a hit) pussy nigga, blrrrd, ay
+[00:50.37] 
+[00:13.15] FDO, FTF, first day out, bitch, fuck the feds
+[00:15.84] Walked out the jail, I saw six foreigns, I just got out the bunk bed
+[00:18.96] Three million cash, can't fit in my hand, then sit some on my head
+[00:22.25] Bae, come put that pussy on me, bitch, I'm fresh from out the feds (on God)
+[00:59.75] 
+[00:25.91] I say fresh from out the feds, baby, come put that pussy on me (put that pussy on me)
+[00:29.06] Turnt as fuck in the strip club, ran outta ones, started throwin' hunnids
+[00:32.28] Nigga, I can't fumble shit, the whole world been waitin' on it (yup)
+[00:35.62] Tucked that knife all way to R&D, gave it to my lil' homie, nigga (let's go)
+[01:13.62] 
+[00:39.29] Ain't no more Mufasa, Mr. Goldman, I catch jets to Johnny (yup)
+[00:42.56] Ain't no more outfits from Southland Mall, this setup made in London (yup)
+[00:45.61] Couple hos jumped off my bid, majority waited on me (fuck 'em)
+[00:48.73] She just actin' faithful to you 'til I get home, trust me, homie (I stamp that)
+[01:28.23] 
+[00:51.91] Feel impatient, I might do a demonktration off GP (this one here on me)
+[00:55.57] I ain't shot nothin' in like four years, I ain't sent a hit in three (on GP)
+[00:58.50] Don't let Durk verse go to your head, ain't nobody slime as me (I stamp that)
+[01:01.50] I'm the one from 'round the corner where they snaked Martin Luther King (yup)
+[01:40.00] 
+[01:04.99] Extra aggressive out in traffic 'cause Hank ain't in the backseat (free Hank)
+[01:07.93] Everywhere I go, it's cars trailin' 'cause Reckless ain't drivin' me (long live the gang)
+[01:11.34] I get mad when I look around and my members ain't where they 'posed to be
+[01:14.68] A whole war goin' on, I'm stuck in the cage, it drove me crazy
+[01:45.68] 
+[01:17.96] (Did that time, Shiesty, stay out the way) 30, pass me that Drac' (blrrrd)
+[01:21.45] (Say fuck the hood, Memphis ain't no good) get your bitch ass out my face (blrrrd)
+[01:24.61] Unfortunately, I'm CEO and the top shooter for my gang
+[01:27.80] My grandma told me keep my grass low, the whole time, I'm the snake (a slime)
+[02:06.30] 
+[01:31.13] Smelled his plot from like three miles away, he can't outsnake a snake
+[01:35.29] I ain't choose the skreets, they chose me, steppin' on shit my lane
+[01:38.45] I ain't choose to rap, it chose me, my name held too much weight
+[01:41.82] Type influence I got where I'm from, got Yo Gotti totin' a Drac' (on God)
+[02:18.32] 
+[01:45.12] When you meet me, you gon' get real motivated same day (on God)
+[01:48.32] Them tear drops played out, go get your favorite bullet on your face (on God)
+[01:51.40] Do not rap when I am told, I rap when I got shit to say
+[01:54.88] SF90, I'm allergic to Corvettes, fuck a C8 (lil' nigga)
+[02:22.38] 
+[01:58.46] This an F8, not a C8, nigga, Mansory edition
+[02:01.84] In the May-May, oh my God, what-happened-to-Virgil edition (that Maybach)
+[02:04.42] In the Wray-Wray, widebody, Cullinan, Black Badge edition (that Rolls-Royce)
+[02:07.76] In the same Scat Pack since I left, that mean you stuck, lil' nigga (yup)
+[02:44.26] 
+[02:11.00] We all on a race to the top, these niggas stuck, can't get no bigger (say what?)
+[02:14.38] I got richer while in jail, locked in the feds outdoin' niggas (on God)
+[02:17.66] Now my watch got on a watch, my chain got more chains than you niggas
+[02:20.59] Ain't no such thing as real niggas, but I'm damn sure ain't counterfeit (I ain't fakin' this shit)
+[03:09.59] 
+[02:24.05] Hid ten M's in the bank, then went fed, got penitentiary rich (I'm still filthy rich)
+[02:27.39] Orderin' Ferraris off a jail call, I'm real rich
+[02:30.63] Make sure she cover my name up if you plan on keepin' the bitch (fuck her)
+[02:34.06] I signed a deal, then went to jail, they ain't even seen me pop my shit (on gang)
+[03:14.56] 
+[02:37.37] I'm just now buyin' a chain that say my name, I been bullshittin'
+[02:40.22] My niggas died while in chains, get-back gang, I'm right back for revenge (gang, on gang)
+[02:43.55] Ay, I'm just way more colder, every eight hours, I'm changin' fits (what?)
+[02:46.95] Every seven, I change the bitch (what?), nothin' but foreigns when we change lanes (blrrrd)
+[03:32.45] 
+[02:50.64] Hood poet, all these jewels I drop, how you ain't make a chain? (Goofy)
+[02:53.79] He ain't dead, but I got niggas in the feds smokin' Lil Wayne (big Tunechi)
+[02:57.04] Soon I see my Memphis homies, ay, mane, say, mane (what up?)
+[03:00.09] I had nine M's to my name, makin' chi-chis out Shabangs
+[03:27.59] 
+[03:03.82] Reorganized my whole gang, on Sundays, we work on our aim (on God)
+[03:06.65] And every month on the 13th, I'm boppin' out with a new chain
+[03:09.79] I heard skreet nigga gettin' tummy tucks, told you these rappers lame (man, these niggas gay)
+[03:13.55] In my cell, I did a thousand burpees, I toned up my frame (thousand of 'em skraight)
+[03:55.55] 
+[03:16.83] Fitted suit on, fitted cap turned backwards, Richard Millie plain (Patek plain Jane)
+[03:20.04] Them steppers who got him served, they wasn't doin' it for lil' Saint
+[03:23.39] See, my daddy my first co-D, jumped in the skreets, he showed me lanes (them facts)
+[03:26.46] Your daddy a killer, but you ain't, you just like Bronny James (facts)
+[04:01.46] 
+[03:29.76] I asked her where she want my kids, she told me grab the brush and paint
+[03:32.88] So I aimed right at her forehead and tried to spell out my name (yeah, yeah, yeah)
+[03:36.33] I got locked, nigga dropped million dollars worth salt around my gang (right there by my name, nigga)
+[03:39.71] Please tell me that shit fell up out they pockets, skinny man
+[04:10.21] 
+[03:42.81] Please tell these rap niggas sayin', "Blrrrd," without permission that they stealin' (blrrrd, blrrrd, blrrrd)
+[03:46.15] Memphis menace, kids, say no to drugs and damn right to killin' (blrrrd)
+[03:49.46] She choose, but her lips ain't move, I read her eyes, they said, "Pimp me"
+[03:52.62] See, bae, I'm least likely some pimpin', but I'm more likely a bachelor
+[04:28.12] 
+[03:55.73] Super Shiesty, crooked letter, crooked letter, David Banner (slatt)
+[03:59.33] In the trap, feelin' like O-Dog, watchin' hits I did on camera (I shoot shit on camera)
+[04:02.61] Out on papers with a 922G sittin' on my counter (say what?)
+[04:05.88] I'm out on papers with a fully ARP sittin' on the counter (blrrrd, that blrrrd)
+[04:45.38] 
+[04:09.32] If you think you got more shots than CG, come and try your luck (pussy)
+[04:12.14] You ain't never bought no crate or no grenade, shut the fuck up (shut y'all broke-ass up, nigga)
+[04:15.54] I just ordered a gun store, nobody ain't got more chop than us (on God)
+[04:18.59] 901, 375, 0762, call my bluff (try that)
+[04:38.59] 
+[04:22.36] I treat a player like a player and a custo like a cluck
+[04:25.79] You need to treat your glizzy like a collared shirt and button it up (ah, ah)
+[04:29.05] I treat gangstas like civilians, I treat smart niggas like ducks (quack)
+[04:32.40] Long story short, short story shorter, nigga, I cannot be touched (at all)
+[05:09.40] 
+[04:35.67] Cannot slip up, can't get on books, can't go out sad, can't get out far (the fuck?)
+[04:38.79] I sicced a C girl on the opps, she left an AirTag in his glove box (slatt)
+[04:41.98] KD patient, he might spank 'em next year or tomorrow (try that)
+[04:45.11] I took my homie Dummo Glock 'cause he went out like Cheddar Bob (fuck him)
+[05:22.11] 
+[04:48.74] Thank e'ry bitch I had to shit on for these foreigns in my garage (they custom)
+[04:51.87] E'ry bitch who lost faith in me named after one of my cars
+[04:55.16] Where y'all? Stolo still parked, stuffin' zaza in pickle jars (blrrrd, blrrrd, blrrd)
+[04:58.87] If my Drac' jam on me, we beefin', I'ma turn Kendrick Lamar
+[05:28.37] 
+[05:01.72] He got his car flipped on Lamar, died with his gun, he couldn't e'en shoot
+[05:05.14] I'm CEO, I cannot go, even my skrikers bulletproof
+[05:08.42] All my hos from Memphis still allowed to call me Mr. Pooh
+[05:11.67] Seven foreigns, rose gold, my first day out, damn fool, blrrrd (blrrrd, blrrrd)
+[05:51.17] 
+[05:16.32] Rooster-ass nigga
+```
